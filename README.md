@@ -47,7 +47,7 @@ No matter how small the progress is, it still counts. What matters is showing up
 
 **One day. One commit. One step forward. 🚀**
 
-## Love,
-## Unnati ❤️
+Love,
+Unnati ❤️
 
 
